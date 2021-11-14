@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ChengjinYang
+- 👋 Hi, I’m @Chengjin
 - 📫 How to reach me 871652138@qq.com
 
 <!---
